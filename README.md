@@ -1,2 +1,1 @@
-**AHLAN WA SAHLAN**
-**HEHEY NOTBAD**
+**selamat datang di website pertamaku**
